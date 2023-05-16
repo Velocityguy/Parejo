@@ -1,0 +1,2 @@
+# Parejo
+Sir ako ini
